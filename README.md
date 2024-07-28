@@ -9,7 +9,7 @@
 
 💞 I'm looking to collaborate on projects involving Natural Language Processing, Computer Vision, or Full-Stack Development
 
-📫 How to reach me: hrrsabdallah123@gmail.com | https://in/harris-abdallah-musah
+📫 How to reach me: hrrsabdallah123@gmail.com | https://www.linkedin.com/in/harris-abdallah-musah/
 
 😄 Pronouns: He/Him
 
